@@ -22,4 +22,4 @@
 
 ## Follow Me
 [![](images/tiktok.PNG)](https://www.tiktok.com/@blahblah)
-[![](images/instagram.PNG(https://www.instagram.com/tina.davitiani/)
+[![](images/instagram.PNG)](https://www.instagram.com/tina.davitiani/)
