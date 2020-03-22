@@ -1,6 +1,6 @@
 # Hi, this is Tina. Welcome to my page.
 
-[![](images/Tina-small.PNG](images/Tina.PNG)
+[![](images/Tina-small.PNG)](images/Tina.PNG)
 
 *****
 
