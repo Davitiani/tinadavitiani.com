@@ -8,7 +8,7 @@
 - I'm 11 years old
 - I'm in 5th grade at Hage Elementary
 - I have a :baby: brother named [Luka](images/Tina.PNG)
-- and a :baby: :dog: named [Meu-Meu](images/meu-meu.PNG)
+- and a :baby: :dog: named [Meu-Meu](images/meumeu.PNG)
 
 *****
 
