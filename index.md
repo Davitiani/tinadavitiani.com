@@ -21,7 +21,9 @@
 *****
 
 ## Follow Me
-[![](images/tiktok.PNG)](https://www.tiktok.com/@bebegorda)    
+[![](images/tiktok.PNG)](https://www.tiktok.com/@bebegorda)  
+my tik tok
 [![](images/instagram.PNG)](https://www.instagram.com/tina.davitiani/)
-[![](images/tiktok.PNG)](https://www.tiktok.com/@tiktoksfrommom)     
+[![](images/tiktok.PNG)](https://www.tiktok.com/@tiktoksfrommom)
+my moms tik tok
 
