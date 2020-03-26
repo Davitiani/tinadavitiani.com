@@ -16,7 +16,7 @@
 - Girl Scouts
 - Swimming
 - Water Polo
-- Tennis
+- ~~Tennis~~
 
 *****
 
