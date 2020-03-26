@@ -1,4 +1,4 @@
-# Hi, this is Tina. Welcome to my page.
+# :)
 
 ![](images/Tina2.PNG)
 
