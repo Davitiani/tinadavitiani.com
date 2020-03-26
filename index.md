@@ -12,18 +12,12 @@
 
 *****
 
-## My Hobbies
-- Girl Scouts
+## Sports that I do
 - Swimming
 - Water Polo
-- ~~Tennis~~
+
 
 *****
 
-## Follow Me
-[![](images/tiktok.PNG)](https://www.tiktok.com/@bebegorda)  
-my tik tok
-[![](images/instagram.PNG)](https://www.instagram.com/tina.davitiani/)
-[![](images/tiktok.PNG)](https://www.tiktok.com/@tiktoksfrommom)
-my moms tik tok
-
+## Backstory to the sports that I do
+- I've been doing swimming my whole life. And right now I'm on the Ned Baumer Swim Team! [Ned Baumer](https://www.nedbaumerswimteam.wordpress.com) 
