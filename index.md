@@ -21,5 +21,5 @@
 *****
 
 ## Follow Me
-[![](images/tiktok.PNG)](https://www.tiktok.com/@blahblah)
+[![](images/tiktok.PNG)](https://www.tiktok.com/@bebegorda)
 [![](images/instagram.PNG)](https://www.instagram.com/tina.davitiani/)
