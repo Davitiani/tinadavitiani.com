@@ -20,4 +20,4 @@
 *****
 
 ## Backstory to the sports that I do
-- I've been doing swimming my whole life. And right now I'm on the Ned Baumer Swim Team! [Ned Baumer](https://www.nedbaumerswimteam.wordpress.com) 
+- I've been doing swimming my whole life. And right now I'm on the Ned Baumer Swim Team! [Ned Baumer](https://nedbaumerswimteam.wordpress.com) 
