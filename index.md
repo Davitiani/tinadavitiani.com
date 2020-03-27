@@ -1,4 +1,4 @@
-# tina's page :) - testing
+# tina's page :)
 
 ![](images/Tina2.PNG)
 
