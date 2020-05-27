@@ -8,7 +8,7 @@
 - I'm 11 years old
 - I'm in 5th grade at [Hage Elementary](https://www.sandiegounified.org/schools/hage)
 - I have a baby brother named [Luka](images/Tina.PNG)
-- I have a fat dog named **[Meu-Meu]**(images/meumeu.PNG)
+- I have a fat dog named **[Meu-Meu]**(images/meumeu.png)
 
 *****
 
