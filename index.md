@@ -1,24 +1,25 @@
-# tina's page :)
-
-![](images/Tina2.PNG)
+# Tina's Website (yasss😛😊)
 
 *****
 
 ## About Me
-- I'm 11 years old
-- I'm in 5th grade at [Hage Elementary](https://www.sandiegounified.org/schools/hage)
-- I have a baby brother named [Luka](images/Tina.PNG)
-- I have a fat dog named **[Meu-Meu](images/meumeu.png)**
+- I'm 13 years old
+- I'm in 7th grade
+- Follow my Instagram @t1na15😻
+- My favorite color is red💕
 
 *****
 
-## Sports that I do
-- Swimming
-- Water Polo
+## Sports 
+- Swimming (5 yrs)
+- Water Polo (2 yrs)
 
 
 *****
 
-## Backstory to the sports that I do
-- I've been doing swimming my whole life. And right now I'm on the [Ned Baumer Swim Team](https://nedbaumerswimteam.wordpress.com) 
-- I also started waterpolo because my dad wanted me to try it out because he did waterpolo. But I actually liked it, so everything turned out well. [Waterdog Polo](https://sites.google.com/view/waterdog-polo/home)
+## Things I HATE
+- Chuaahahas
+- Short people😇 (no offense😅) jk.
+- English
+- Color blue
+
