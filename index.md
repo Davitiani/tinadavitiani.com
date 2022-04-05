@@ -1,6 +1,6 @@
 # Tina's Website (yasss😛😊)
 
-![](/download.png)
+![]()
 *****
 
 ## About Me
