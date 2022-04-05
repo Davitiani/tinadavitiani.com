@@ -5,7 +5,6 @@
 ## About Me
 - I'm 13 years old
 - I'm in 7th grade
-- Follow my Instagram @t1na15😻
 - My favorite color is red💕
 
 *****
@@ -18,8 +17,8 @@
 *****
 
 ## Things I HATE
-- Chuaahahas
-- Short people😇 (no offense😅) jk.
-- English
+- Chuaahahas😰
+- People who say "Time to get a watch" when I ask for the time .
+- English😑
 - Color blue
 
