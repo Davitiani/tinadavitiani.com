@@ -1,6 +1,7 @@
 # Tina's Website (yasss😛😊)
 
 ![]()
+
 *****
 
 ## About Me
@@ -22,4 +23,3 @@
 - People who say "Time to get a watch" when I ask for the time .
 - English😑
 - Color blue
-
